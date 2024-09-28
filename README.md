@@ -1,1 +1,1 @@
-   go to wiki  .. stinkay
+weekee
